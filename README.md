@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Akash Kasar
 - 👀 I’m interested in Codes
 - 🌱 I’m currently learning on myself
-- 📫 How to reach me over linkdin @linkedin.com/in/akash-dode-691711189/
+- 📫 How to reach me over LinkDin @linkedin.com/in/akash-dode-691711189/
 - 😄 Pronouns: Akash ! 
 - ⚡ Fun fact: I am still following a process. 
 
